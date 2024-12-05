@@ -1,3 +1,5 @@
 - Some random guy
 - Captain of the CTF team OctalO
 - Currently: praying that I might somehow manage to become decent at something
+- Skills: nothing, changing my README.md file like 20 times cuz i dont have a good description in mind so i am updating it non stop, being annoying :], speaking a lot and loudly
+- Learning: a ton of random shit I needed to study years ago but lazy + dumb 
